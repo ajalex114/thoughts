@@ -1,7 +1,7 @@
 ---
 layout: post
 title: The value of a Bed
-image: hostel bed.jpg
+image: hostel_bed.jpg
 date: 2021-11-19
 tags: [reflection]
 categories: experience
