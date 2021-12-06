@@ -51,3 +51,5 @@ We seldom take a moment to thank God for what we have. We keep complaining for w
 If you have a shelter to sleep in, a bed to sleep on, you are a very fortunate person.
 
 Take a moment. Thank God. For he has blessed you abondantly.
+
+_Photo Credits: [JayMantri](https://pixabay.com/users/jaymantri-362084/) on [pixabay](pixabay.com)_
