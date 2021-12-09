@@ -4,6 +4,7 @@ title: God's timing is all wrong, Or is it?
 image: timing.jpg
 date: 2021-12-07
 tags: [reflection, bible]
+categories: bible
 ---
 
 _Disclaimer: The thought are just mine, and do not necessarily reflect that of the Church. If you notice it to be incorrect, please notify me. I am willing to correct it or take it down (if I feel it is necessary to do so)._
