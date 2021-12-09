@@ -46,7 +46,7 @@ But back to the question. Why did God have to chose this timing?
 He could have given them a kid in their 20s or their 30s or max in their 40s.  
 Why did he chose this timing?  
 
->Well, if he had, we probably wouldn't have known the name Abraham. We certainly wouldn't have called Abraham as the _Father of Faith_.  
+> Well, if he had, we probably wouldn't have known the name Abraham. We certainly wouldn't have called Abraham as the _Father of Faith_.  
 God repayed for the sacrifice Abraham had to make for God's decision to delay the timing.  
 He gave him _honor_, _respect_, made him Father to Nations which when you look at it is no small feat.  
 You look at Israel, you know the country's Father: Abraham.  
@@ -74,7 +74,7 @@ If phase 1 was to make them fit, phase 2 was to show them the power of God.
 You know the rest of the story.  
 That travel through the wilderness was not just about reaching the promised land, but also about defining Israel as a country.  
 
->If God hadn't chosen this timing, we probably wouldn't  know of the country Israel. It probably wouldn't have survived for long.  
+> If God hadn't chosen this timing, we probably wouldn't  know of the country Israel. It probably wouldn't have survived for long.  
 But instead even today, Israel being such a small country surrounded by enemy nations stand upright, undestructable.  
 One of the most powerful militaries in the world.  
 One of the most influential countries in the world.  
@@ -119,7 +119,7 @@ But what did Mother Mary say?
 What was the outcome?  
 
 Well, as we all know,  
->God kept Mother Mary out of danger.  
+> God kept Mother Mary out of danger.  
 He took deep care of Mother Mary.  
 He made her the Mother to all.  
 He exhaulted Mother Mary above all.  
@@ -129,16 +129,16 @@ To add on, if it weren't for this timing, Jesus would not have Joseph as Father.
 Also, Mother Mary would have been stoned to death for sure, if Joseph had not taken her up as his wife.  
 
 Well, I have to admit, 
->There was no better time for God to make this happen in Mother Mary's life.  
+> There was no better time for God to make this happen in Mother Mary's life.  
 
 ## Back to Zechariah
 
 I believe you get the pattern by now. God didn't do this to Zechariah in his 20s or 30s so that he could put Zechariah on the map.  
->If John the baptist was born at an earlier time, we wouldn't have know Zechariah at all.  
+> If John the baptist was born at an earlier time, we wouldn't have know Zechariah at all.  
 Also, by the nature of John the baptist, he would probably be long dead by the time Jesus started his public ministry.  
 Both of their timings HAD to coincide.  
 
->To speak the least, God planned it all perfectly. We are the ones who failed to see it.  
+> To speak the least, God planned it all perfectly. We are the ones who failed to see it.  
 
 ## The Great Plan
 
@@ -157,7 +157,7 @@ I guess the short summary is God acts on us, at timings which we might feel unco
 God also utilizes these timings to teach us to trust in him blindly.  
 
 It is upto us to decide if we should follow the _Zechariah approach_ or the _Mother Mary approach_.  
->Do I doubt his timings given the situation, like Zechariah?  
+> Do I doubt his timings given the situation, like Zechariah?  
 OR  
 Do I act like Mother Mary who stayed calm and trusted God blindly in her situation?  
 
@@ -173,6 +173,6 @@ He will do the right thing at the right time.
 To him, all that happened was at the perfect timing.  
 I just have to learn to trust him.  
 
-**God's timing. Its the perfect timing.**
+> **God's timing. Its the perfect timing.**
 
 _Photo Credits: Photo by Holafabiola from [Pexels](pexels.com)_
