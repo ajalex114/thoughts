@@ -7,7 +7,7 @@ tags: [story]
 categories: story
 ---
 
-This is a story that I wrote sitting on a but at a place called `Marathahalli` in `Bangalore`.  
+This is a story that I wrote sitting on a bus at a place called `Marathahalli` in `Bangalore`.  
 The traffic was very bad, _as usual_.  
 I was frustrated, late for office.
 A private plane just flew by, and I felt jealous.  
@@ -16,7 +16,8 @@ I wrote this story sitting on the bus. And I completed it during the same journe
 
 _Here it goes_
 
->The air traffic looks fine. The pilots are speaking on the radio with the airport authorities.  
+>The air traffic looks fine.  
+The pilots are speaking on the radio with the airport authorities.  
 The runway seems to be clear for landing.  
 The private jet slows down, in preparation to land.  
 The VIP slowly wakes up, comfortable on the leather cushioned seat.  
