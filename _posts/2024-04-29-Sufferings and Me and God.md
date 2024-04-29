@@ -54,4 +54,4 @@ __God Loves You__.
 
 God Bless.
 
-
+_Photo Credits: Photo by cottonbro studio from [Pexels](https://www.pexels.com/photo/man-in-black-long-sleeve-shirt-lying-on-gray-couch-4101155/)_
